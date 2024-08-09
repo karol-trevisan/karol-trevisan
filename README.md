@@ -1,3 +1,5 @@
+##OIe, sou a karol-trevisan##
+
 • 🎮 Estudando game desing
 
 • ✨️ Estudando Visual Studio Code (iniciante)

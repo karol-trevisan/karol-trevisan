@@ -1,4 +1,4 @@
-## Oie, sou a kah-trevisan
+## Oie, sou a kah-trevisan🍞
 
 • 🎮 Estudando game desing
 
